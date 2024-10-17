@@ -3,7 +3,7 @@
 <img src="https://rotativka.com/en/wp-content/uploads/sites/3/2021/06/Mines-Demo.jpg" width="720" height="400">
 </h3>
 <table align=center> <tr>
-      <th scope="col"><a href="https://link.fun88-india.com/spribe-mines">Mines Game</th>
+      <th scope="col"><a href="https://link.fun88-india.com/spribe-mines">Play Mines Game</th>
  </tr></table></h3></h3>
 The mines game has captivated players for decades, becoming a staple in the world of gaming. Originally inspired by the classic minesweeper, this engaging game has evolved into various formats, including mines casino game, mines gambling game, and mines betting game. In this post, we’ll delve into the origins of the minesweeper game, its transition to online platforms, and its adaptation in the casino environment.
 
