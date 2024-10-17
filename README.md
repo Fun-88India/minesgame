@@ -30,6 +30,9 @@ With the rise of online gaming, developers have begun transforming traditional g
 The popularity of the mines gambling game stems from its unique blend of gaming and betting, drawing in both casual gamers and avid gamblers. Players can enjoy the thrill of the hunt while also having the potential to win real money, making it a perfect combination for many.
 
 ## Play Minesweeper and Its Variants
+<h3 align=center>
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSZsOegT1MZgDNP8i8So333lV0A2FPcvcGw8w&s" width="720" height="400">
+</h3>
 
 The original minesweeper has inspired numerous variations and adaptations, including the minesweeper google version, which can be played directly in the search engine. Google’s version has introduced a new generation of players to this classic, allowing them to easily play minesweeper without needing to download any software.
 
